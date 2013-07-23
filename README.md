@@ -3,7 +3,7 @@ dream
 
 make every things for the dream
 
-Dream plan's draft.
+Dream is draft now.
 
 many language for the dream.
 
